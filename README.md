@@ -1,2 +1,3 @@
 # Clash-Royale-Infinity-Modding-Project
-This is one of my project: Cracked Royale!-Here there are csv cracked! Private Project of Infinity Modding
+That is the order of Chest!! 
+You can change it, but first you must use Clash Royale Proxy Hack
